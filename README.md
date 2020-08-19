@@ -1,1 +1,0 @@
-# hegedus-adam.github.io
